@@ -1,1 +1,0 @@
-takashiba@TakanoMacBook-Pro.local.63431
